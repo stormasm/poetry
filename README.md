@@ -1,3 +1,2 @@
 
-For just the notes on poetry go here:
-[poetry](https://github.com/stormasm/notes/tree/master/poetry)
+For now we are only focused on antonio machado.
