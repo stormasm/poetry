@@ -12,9 +12,9 @@ that make a house work
 existence makes a thing useful  
 but nonexistence makes it work  
 
-Colleen's poetry tree in front of Coho
-turned me on to this poem.
-3/21/2023
+Colleen's poetry tree in front of Coho  
+turned me on to this poem.  
+3/21/2023  
 first day of the equinox
 
 ### References
