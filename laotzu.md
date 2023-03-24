@@ -1,6 +1,6 @@
 
 
-Thirty spokes converge on a hub  
+thirty spokes converge on a hub  
 but it's the emptiness  
 that makes a wheel work  
 pots are fashioned from clay  
