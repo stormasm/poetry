@@ -36,3 +36,5 @@ The spokes of the wheel may be read not just as a clear image, but a statement o
 Even as a manual for writing, Lao-tzu shows us that the little spokes of the sentence, the wheel of the paragraph, and the cart of meaning are as discrete as they are a unified whole. In this way, we are being told it is better for our lives, and perhaps our practice as lovers of poetry, to reach towards the clarity of emptiness.
 
 Indeed, what shocks me about Lao-tzu’s insights, and Red Pine’s translations of them, is their immense clarity. I see this clarity when I read the Johannine corpus (The Gospel, The Letters, The Apocalypse), Dante, The Upanishads, Plato and Wittgenstein. It is the clarity in which contradiction gives way to that analogy we call harmony. It is the clarity of the “shock of recognition” not for what my writing may become, but for a world that is hidden in the mist of the world that is and the immense beauty and fear that comes with recognizing how much virtue there is to cultivate.
+
+ok
