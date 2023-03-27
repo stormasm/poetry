@@ -2,9 +2,15 @@
 
 ### How I found this poem in my life
 
-I found this poem on the street the other day.   
+I found this poem
+on the street
+the other day.   
 Literally.   
-A woman in our neighborhood each week posts a poem on a board outside her apartment...  
+A woman in our neighborhood
+each week
+posts a poem
+on a board  
+outside her apartment...  
 The poem is fascinating to me.  
 Especially the last 2 lines
 
