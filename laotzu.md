@@ -1,5 +1,16 @@
 
 
+### How I found this poem in my life
+
+I found this poem on the street the other day.   
+Literally.   
+A woman in our neighborhood each week posts a poem on a board outside her apartment...  
+The poem is fascinating to me.  
+Especially the last 2 lines
+
+*existence makes a thing useful  
+but nonexistence makes it work*
+
 thirty spokes converge on a hub  
 but it's the emptiness  
 that makes a wheel work  
@@ -36,3 +47,5 @@ The spokes of the wheel may be read not just as a clear image, but a statement o
 Even as a manual for writing, Lao-tzu shows us that the little spokes of the sentence, the wheel of the paragraph, and the cart of meaning are as discrete as they are a unified whole. In this way, we are being told it is better for our lives, and perhaps our practice as lovers of poetry, to reach towards the clarity of emptiness.
 
 Indeed, what shocks me about Lao-tzu’s insights, and Red Pine’s translations of them, is their immense clarity. I see this clarity when I read the Johannine corpus (The Gospel, The Letters, The Apocalypse), Dante, The Upanishads, Plato and Wittgenstein. It is the clarity in which contradiction gives way to that analogy we call harmony. It is the clarity of the “shock of recognition” not for what my writing may become, but for a world that is hidden in the mist of the world that is and the immense beauty and fear that comes with recognizing how much virtue there is to cultivate.
+
+### How I found this poem in my life
