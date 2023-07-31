@@ -1,4 +1,4 @@
-* [Introduction to Antonio Machado](https://github.com/stormasm/notes/blob/main/poetry/machado/introduction.md)
+* [Introduction to Antonio Machado](./introduction.md)
 
 * [Here are some poems by Antonio Machado in both Spanish and English](https://github.com/stormasm/notes/blob/main/poetry/machado/poems.md)
 
