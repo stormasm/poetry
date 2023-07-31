@@ -1,10 +1,10 @@
 * [Introduction to Antonio Machado](./introduction.md)
 
-* [Here are some poems by Antonio Machado in both Spanish and English](https://github.com/stormasm/notes/blob/main/poetry/machado/poems.md)
+* [Here are some poems by Antonio Machado in both Spanish and English](./poems.md)
 
-* [Here are some references to Machado](https://github.com/stormasm/notes/blob/main/poetry/machado/references.md)
+* [Here are some references to Machado](./references.md)
 
-* [Here are some Youtube references to Machado](https://github.com/stormasm/notes/blob/main/poetry/machado/youtube.md)
+* [Here are some Youtube references to Machado](./youtube.md)
 
 ## Favorite Poems
 
